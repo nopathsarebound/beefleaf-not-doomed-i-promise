@@ -2,4 +2,4 @@ nopathsarebound
 
 
 
-![image alt](https://github.com/nopathsarebound/nopathsarebound/blob/b6f546a0922357cceca0232f2d97f7b860362604/IMG_8610.PNG)
+![image alt](https://github.com/nopathsarebound/nopathsarebound/blob/350ba0b7a6d03e198fc729fb2821553088ef8f7f/Untitled279_20251011175831.PNG)
