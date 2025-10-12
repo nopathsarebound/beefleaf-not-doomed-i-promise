@@ -1,4 +1,5 @@
-   ![image alt](https://github.com/nopathsarebound/nopathsarebound/blob/d0e4b46cbf78bf88edc722e237aab6e318be7385/IMG_8615.PNG)        ⠀ ⠀  ⠀          ⠀ ⠀  ⠀          ⠀ ⠀  ⠀          ⠀ ⠀  ⠀    layout doesn't look good on mobile !
+layout doesn't look good on mobile !
+   ![image alt](https://github.com/nopathsarebound/nopathsarebound/blob/d0e4b46cbf78bf88edc722e237aab6e318be7385/IMG_8615.PNG)        ⠀ ⠀  ⠀          
    
    ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀   ⠀ ⠀  ⠀ ⠀ ⠀ rae ⠀ /⠀ yuna ! ⠀ ⠀                       
    ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
