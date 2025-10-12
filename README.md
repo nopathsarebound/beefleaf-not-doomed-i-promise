@@ -2,4 +2,4 @@ nopathsarebound
 
 
 
-![image alt](https://github.com/nopathsarebound/beefleaf-not-doomed-i-promise/blob/7c3f6cdc9799cedb1d62e0004b3730192ca3b538/Untitled277_20251011173708.PNG)
+![image alt](https://github.com/nopathsarebound/nopathsarebound/blob/b6f546a0922357cceca0232f2d97f7b860362604/IMG_8610.PNG)
